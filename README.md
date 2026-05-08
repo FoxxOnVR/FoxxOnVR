@@ -1,5 +1,5 @@
 *Hello!*
-My name is **FoxxOnVR** and I will make thing for ya'll to enjoy.
+My name is **FoxxOnVR** and I will make thing for y'all to enjoy.
 
 
 
